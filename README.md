@@ -1,1 +1,0 @@
-# arraia-da-shopee
